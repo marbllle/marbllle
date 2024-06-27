@@ -7,5 +7,5 @@
 <br/><br/>
 ![](https://files.catbox.moe/2n01wz.gif)⠀
 <b>no dni<em>!</b></em> ◞ ྀི◟ ⏔⏔⏔ ꒱ interests ౨ৎ
-horror <br/>
+horror, <br/>
 goth subculture, roblox, bfdi, ab, itft
