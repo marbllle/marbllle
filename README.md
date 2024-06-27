@@ -8,4 +8,4 @@
 ![](https://files.catbox.moe/2n01wz.gif)⠀
 <b>no dni<em>!</b></em> ◞ ྀི◟ ⏔⏔⏔ ꒱ interests ౨ৎ
 goth <br/>
-subculture, horror, roblox, bfb/tpot, ab, itft
+subculture, horror, roblox, bfdi, ab, itft
