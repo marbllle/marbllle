@@ -5,6 +5,6 @@
 <br/>![](https://files.catbox.moe/kq8wi5.gif) 
 [prnscc](https://prns.cc/sjjma) ౨ৎ disc@malllory. Ꮺ
 <br/><br/>
-![](https://files.catbox.moe/2n01wz.gif)lll⠀
+![](https://files.catbox.moe/2n01wz.gif)⠀
 no dni! ◞ ྀི◟ ⏔⏔⏔ ꒱ interests ౨ৎ goth <br/>
 subculture, object shows, horror, roblox
