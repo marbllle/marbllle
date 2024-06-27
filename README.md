@@ -6,5 +6,5 @@
 ౨ৎ disc@malllory. ୨୧ rblx@hailrot Ꮺ
 <br/><br/>
 ![](https://files.catbox.moe/2n01wz.gif)⠀
-no dni***!*** ◞ ྀི◟ ⏔⏔⏔ ꒱ interests ౨ৎ goth <br/>
+no dni**!** ◞ ྀི◟ ⏔⏔⏔ ꒱ interests ౨ৎ goth <br/>
 subculture, object shows, horror, roblox
