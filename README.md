@@ -9,4 +9,4 @@
 <b>no dni<em>!</b></em> ◞ ྀི◟ ⏔⏔⏔ ꒱ interests ౨ৎ
 horror, <br/>
 goth subculture 𖤍 roblox, bfdi, ab, itft, lots, 
-<br/>hfjone, minecraft 𖤍 [fav song rn](https://youtu.be/A56f_FjEVzg?si=GsicZglQDOhuY5__)
+<br/>hfjone, minecraft 𖤍 [fav song rn](https://youtu.be/A56f_FjEVzg?si=GsicZglQDOhuY5__) ♪♫
