@@ -6,4 +6,5 @@
 [prnscc](https://prns.cc/sjjma) ౨ৎ disc@malllory. Ꮺ
 <br/><br/>
 ![](https://files.catbox.moe/2n01wz.gif)lll⠀
-no dni! ◞ ྀི◟ ⏔⏔⏔ ꒱ interests ౨ৎ goth <br/>subculture, object shows, horror, roblox
+no dni! ◞ ྀི◟ ⏔⏔⏔ ꒱ interests ౨ৎ goth <br/>
+subculture, object shows, horror, roblox
