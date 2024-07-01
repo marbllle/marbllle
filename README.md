@@ -9,5 +9,6 @@
 ![](https://files.catbox.moe/2n01wz.gif)⠀
 <b>no dni<em>!</b></em> ◞ ྀི◟ ⏔⏔⏔ ꒱ interests ౨ৎ horror, <br/>
 goth subculture 𖤍 roblox, object shows : bfdi, <br/>
-ab, itft, lots, 
-hfjone, minecraft 𖤍 [fav song rn](https://youtu.be/A56f_FjEVzg?si=GsicZglQDOhuY5__) ♪♫
+ab, itft, lots, hfjone, minecraft 𖤍
+<br/><br/>
+[fav song rn](https://youtu.be/A56f_FjEVzg?si=GsicZglQDOhuY5__) ♪♫
